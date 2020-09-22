@@ -35,7 +35,7 @@ _contribute to help the world, and solve the problems_.
 
 ## About Me
 
-my nanme is patrick chiok zechariah . i live in brussels belgium Ixelles
+my name is patrick chiok zechariah . i live in brussels belgium Ixelles
 
 - [email-Adress](av-hergé-21/3-1050-brussels)
 
